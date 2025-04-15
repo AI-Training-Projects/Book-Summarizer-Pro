@@ -1,0 +1,27 @@
+/* Styling */
+body {
+    font-family: Arial, sans-serif;
+    max-width: 800px;
+    margin: 0 auto;
+    padding: 20px;
+}
+
+.progress {
+    width: 100%;
+    background-color: #f0f0f0;
+    padding: 3px;
+    border-radius: 3px;
+    box-shadow: inset 0 1px 3px rgba(0, 0, 0, .2);
+    margin: 20px 0;
+}
+
+.progress-bar {
+    display: block;
+    height: 22px;
+    background-color: #659cef;
+    border-radius: 3px;
+    transition: width 500ms ease-in-out;
+    color: white;
+    text-align: center;
+    line-height: 22px;
+}

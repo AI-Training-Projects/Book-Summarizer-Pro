@@ -1,0 +1,26 @@
+# Create and activate Conda environment
+# filename: conda_env_create_summarizer_pro.yml
+#
+# Commands to build and activate environment
+# > conda env create -f environment.yml
+# > conda activate summarizer_pro
+#
+
+name: summarizer_pro
+channels:
+  - conda-forge
+dependencies:
+  - python=3.10
+  - pip
+  - conda
+  - flask
+  - transformers
+  - pytorch
+  - torchvision
+  - jinja2
+  - beautifulsoup4
+  - markdown2
+  - reportlab
+  - pypdf2
+  - pip:
+    - accelerate

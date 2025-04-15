@@ -1,0 +1,7 @@
+{
+    "version": "1.0",
+    "model": "bart",
+    "chunk_size": 1024,
+    "chunk_overlap": 200,
+    "summary_ratio": 0.3
+}
