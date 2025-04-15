@@ -13,6 +13,7 @@ dependencies:
   - python=3.10
   - pip
   - conda
+  - python-dotenv
   - flask
   - transformers
   - pytorch

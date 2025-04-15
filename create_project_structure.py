@@ -1,7 +1,6 @@
 import os
 import logging
 from datetime import datetime
-import json
 
 # Setup logging
 timestamp = datetime.now().strftime('%Y%m%d_%H%M%S')

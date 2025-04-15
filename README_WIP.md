@@ -35,7 +35,10 @@ conda activate booksummarizerpro
 ```bash
 python app.py
 ```
-
+OR
+```bash
+ run startup.bat at the Windows
+```
 
 ## Application URLs
 - **Main Application:** `http://localhost:5000`

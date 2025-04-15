@@ -21,3 +21,29 @@ TODO: Fix logging display while it is running, so users can see what progress is
 
 GUI IMPROVEMENTS:
 TODO: Make the user interface more user friendly and intuitive, and prettier too.
+
+DEPLOYMENT IMPROVEMENTS:
+TODO: add Docker container file to deploy this app to a cloud server.
+
+TODO: add instructions for deploying this app to a cloud server.
+
+REPORT OUTPUT FORMATTING IMPROVEMENTS:
+TODO: Fix the summarizer and output formatter to have proper section titles, and other page layout formatting improvements to make it look more professional and more readable for humans.
+
+TODO: Add a table of contents to the report output.
+
+TODO: Add an index to the report output.
+
+TODO: Add a glossary to the report output.
+
+TODO: Add a list of figures to the report output.
+
+TODO: Add a list of tables to the report output.
+
+TODO: Add a list of appendices to the report output.
+
+TODO: Add a list of references to the report output.
+
+TODO: Add a list of acronyms to the report output.
+
+TODO: Add a list of symbols to the report output.
