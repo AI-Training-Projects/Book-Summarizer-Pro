@@ -181,7 +181,8 @@ if __name__ == "__main__":
     logging.basicConfig(
         filename=LOG_FILE,
         level=logging.INFO,
-        format='[%(asctime)s] %(levelname)s in %(module)s: %(message)s'
+        format='[%(asctime)s] %(levelname)s in %(module)s: %(message)s',
+        encoding='utf-8'  # Explicitly set UTF-8 encoding
     )
     app.logger.info("Application started")
     app.run(debug=True)

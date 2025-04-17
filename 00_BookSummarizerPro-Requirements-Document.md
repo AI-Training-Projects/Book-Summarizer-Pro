@@ -6,7 +6,7 @@ BookSummarizerPro is a local Flask web application that enables users to upload 
 
 ## Business Purpose
 
-BookSummarizerPro is a local Flask web application that enables entrepreneurs, researchers, and professionals to upload PDF, HTML, or eBooks, and intelligently summarize them into concise, human-readable and downloadable summaries using accurate NLP models from Hugging Face.
+BookSummarizerPro is a local Flask web application that enables entrepreneurs, researchers, and professionals to upload large PDF, HTML, or eBooks, and intelligently summarize them into concise, human-readable and downloadable summaries using accurate NLP models from Hugging Face.
 
 The application processes all data locally, making it privacy-focused and eliminating reliance on external APIs.  It ensures high-quality formatting and export options without reliance on cloud APIs.
 

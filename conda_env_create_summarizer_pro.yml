@@ -2,8 +2,9 @@
 # filename: conda_env_create_summarizer_pro.yml
 #
 # Commands to build and activate environment
-# > conda env create -f environment.yml
+# > conda env create -f conda_env_create_summarizer_pro.yml
 # > conda activate summarizer_pro
+# > conda env update -f conda_env_create_summarizer_pro.yml
 #
 
 name: summarizer_pro
