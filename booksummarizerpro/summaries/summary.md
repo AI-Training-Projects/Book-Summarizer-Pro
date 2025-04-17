@@ -1,0 +1,567 @@
+Rich and Free demystifies creating wealth secrets. Brian Bieler presents real world strategies from in-the-trenches experience. A must read for anyone looking to create economic security.
+
+This book is not intended to provide pers onalized legal, accounting, financial, or investment advice. Readers are encouraged to seek the counsel of competent professionals with regard to matters such as interpretation of the law, proper accounting procedures, tax
+
+The Entrepreneur’s Guide to Creating Wea may be used only as a general guide and no t as the ultimate source of information. This book contains information that is current only up to the printing date.
+
+The Entrepreneur’s Guide to Creating Wealth and Personal Freedom by Brian J. Bieler is published by Little Falls Press. All rights reserved. No part of this book ma y be reproduced or transmitted in any form or
+
+I want to thank the accomplished people that have given me input and great ideas. The feedback from entrepreneurs and millionaires that have done it throughperspiration, wit, wisdom, smart strategies and taking risks has helped me stay on track.
+
+Many thanks to Charlie Co lombo, Executiv e VP United States Radio. Many thanks to Diane Kennedy, C.P.A. New York Times best selling author Loop-Holes of the Rich.
+
+Dedicated to the Entre. Brian J. Bieler is the founder of Small Business Mavericks and author of Local Small Business Internet Marketing Secrets. He is also the owner of En terprise Rent a Car Los Angeles.
+
+Entrepreneurs are the people who take control of their future. They are the innovators and risk takers that give                 us alternatives and help shape our future.
+
+Dale Carnegie’s book, How to Get Rich While Working for Others, is published by Simon & Schuster. The book is divided into two parts: Part 1 and Part 2.
+
+Dale Carnegie: You can get rich faster than any time in history. The new generation has more opportunity in a faster moving economy. You must become financially literate and think like an entrepreneur.
+
+Rich and Free is a book of real-life experiences, wealth-creating skills and ideas to help you get out of the rat race.
+
+Rich and Free is a book about how to get rich and independent. Learn the skills and thinking of the wealthy and independent people. Learn how to leverage your skills and financial literacy to become rich.
+
+Learn the skills and thinking of rich and independent people to get rich. s and financial literacy. To get rich and independent, learn the Skills and Thinking of Rich and Independent People.
+
+Develop a thick skin and don’t let negative people influence your thinking. Share your ideas with people who are interested in you and your success. When you accomplish things, y
+
+Develop a thick skin and don’t let negative people                 influence your thinking. Share your ideas with people who                 are interested in you and your success.
+
+Lee Dunham grew up in Brooklyn, New York. He joined the Air Force after high school. He worked for restaurants including the Waldorf Astoria. He went to night school to sharpen his business skills.
+
+In 1971, Lee opened the first McDonald ’s franchise in Harlem. Lee put his life savings of $42,000 on the line and borrowed another $150,000 to start the business.
+
+In 1971, Lee opened the first McDonald ’s franchise in Harlem, New York. It was a very tough neighborhood and problems                 started right away. Employees stole food, took                 the cash, and robbed the safe. Lee had to hire
+
+The Harlem franchise went on to become one of the most profitable in the McDonald’s chain earning over $1.5 million dollars a year. Lee was able to rebound and build a restaurant management business.
+
+When people are motivated, they become determined. Lee was able to rebound and build a restaurant management business. Today he owns restaurants in  New York and New Jersey.
+
+The power of positive thinking is not just another slogan or something we learn in seminars and workshops. How we think is more than metaphysical. It creates a blueprint for taking action and gives us the ability to make things happen.
+
+Thomas Edison made 1,000 mistakes before he discovered how to make a light bulb work. Making mistakes is a precursor to success. People with persistence, desire, and commitment become winners because they do try.
+
+Mistakes are a part of taking risks. Learning from them is how we gain knowledge. Obstacles are only something that is in the way. You can have almost anything you want as long as you are willing to go for it.
+
+You can have almost anything you want as long as you are willing to go for it. It’s not how hard you work but how smart you work that gets you to your goals. You may have to unlearn the easy way in order to get to the
+
+How you respond to difficulties and setbacks is as important to success as what is handed to you as a gift. Overcoming adversity helps develop strength, just like bodybuilding and lifting weights develops muscles. The key is making commitments and not giving up when things
+
+Desire is what motivates you and keeps you going. The key is making commitments and not giving up when things get tough. Creating wealth and rich es is going to take all the power and strength yo u can develop.
+
+Winston Churchill: Never give in. Never yield to force; never yield to the apparently overwhelming might of the enemy. Larry King: Nothing I say this day will teach me anything.
+
+Communicating is a learned skill, not born talent. The successful in business work to improve their natural abilities. Being a good communicator is not just about speaking and presenting, it is about being an active listener.
+
+Communicating is not about slickness, it is about how clearly you express ideas and thoughts. You need to be  real and project passion. Simp le and clear is what makes great speakers and good communicators.
+
+The Gettysburg address was only 286 words. Winston Churchill’s “blood, sweat, and tears” speech to the British Parliament was 627 words and lasted only 6 minutes. You do not want people to think, "
+
+People talk at 150 to 180 words a minute yet hear and understand words spoken many times faster. Many listen  passively out of habit and are only interested in what they  have to say. The successful make a major distinction between hearing and listening
+
+Experts claim only 7% of communication is verbal. 35% is tone and emotion. The rest is body language. Active listening is both listening to what is said and watching the emotions.
+
+Communication skills are a tool. It is how you sell your ideas and influence people. An active listener spends more time listening than talking. Generating enthusiasm and a sense of urgency is critical.
+
+A strong self-image is vita l, the data and information you possess will not guarantee your success. It is your ability to sell your ideas that matters. Good communication skills are an important element for the development of relationships.
+
+Communication skills are an important element for the development of relationships. Both the listener and speaker must work at developing good verbal and listening skills. The following are keys to effective communications.
+
+Keys to Effective Communications: Use Your Body and Find Common Ground. Eye contact, facial expressions, body, and posture are all part of communication. Exude energy, enthusiasm, and confidence.
+
+When you acknowledge others, you are enhancing your own position. Do not listen just to ge t information to support your ideas or points of view. Ask questions, stay alert and suspend judgment.
+
+Do not listen just to ge t information to support your ideas or points of view. It shows disrespect and stops you from seeing things from a different perspective. Everyone is enti tled to his or her point of view, right or wrong.
+
+Change the subject before others are finished. “I can top that” puts you in a poor position. Acknowledge what is said and add to the conversation.
+
+Never talk in absolutes. Acknowledge what is said. Use open terms. Let others have their own opinion and thoughts. Good Communication Skills are Essential.
+
+Use open terms. Let others have their own opinion and thoughts. Belligerence is a bad tactic to resolve things. Leave something on the table so you can build relationships.
+
+Belligerence is a bad tactic to resolve things. Find points you can mutually agree on. A quick tongue and temper can be the “Kiss of Death” for a career.
+
+Ego is the critical edge for speakers and communicators. Big egos out of control are shown the door as soon as others can open it. Show humility, affinity, and compassion.
+
+Communication skills and bo dy language important for good speaking. The ability to communicate well is the ability to sell your ideas, talk to customers and financial people.
+
+Good communicators have the ability to sell themselves and influence others. Selling ideas and yourself is what creates success. Clarity is power: sp eak less - say more.
+
+Six blind men lived in a village in India. One day, an elephant wandered into the village. The men couldn't see the elephant, but they could feel it. They argued over what the elephant was.
+
+The Art of Negotiating is like the blind men understanding the elephant. Everyone negotiates but few gain enough insight to under the surface.
+
+The Art of Negotiating is like the blind men understanding the elephant. Everyone negotiates but few gain enough insight to understand all of it. The more successful you get, the more negotiating you will do.
+
+Negotiating is a way to come to an understanding about problems and opportunities. Successful negotiations create a better en vironment to get along with bosses, friends, and family.
+
+Negotiating impacts every aspect of your life, it's how you express your desires, wants, and needs. People rely on negotiating skills to influence others, and make business deals work. No one is born with negotiating skills but with practice and experience, you can greatly improve them
+
+Negotiating has no “Rules of the game,” they are non-existent and are made up as you go along. Emotions and egos are a perfect setup for unpredictable things to happen. Do not get lost in what was “supposed”
+
+Negotiating is like a game of football. The winner will be the one with the best skills, not the best position. Make a list of ideas and positions that support what you want to accomplish so you will not be distracted.
+
+People are only at the negotiating table because they think they have something to gain or win. Arrogance and aggressive behavior in negotiations is a weak positi on and good negotiators will see right through it. Don’t 
+
+Tipping your hat to how capable you are might get others working harder to beat you. Keep your ego under control. Save your knowledge and preparation for the right time. A positi on or demand can be a blank.
+
+People skills will be your strongest asset in negotiating. A positi on or demand can be a blank wall. Find out what is behind it and adjust your style and behavior accordingly.
+
+When trying to understand others, keep it simple. It’s  like painting the walls in a house with a wide paint roller instead of using a fine artist's paintbrush. Look fo r style and adjust to it, but  don�
+
+You can’t change what you are and people may see  through you if you try. However, you can subtly adjust                  your style and that is all it takes to be effective.
+
+The Art of Negotiating is a guide to negotiating with other people. The guide is divided into four sections. The first section is on how to be an active listener. The second section is about how to negotiate.
+
+Key Negotiating Points: Know what you want. Find out what the other side wants as soon as possible. Your power is your walk-away alternative. Remember how Colombo won.
+
+Listen intently. This is your most important skill. If you know you have a problem listening (and you know who you are) practice before negotiating. Negotiating is a process not an event.
+
+Negotiations are subjective and a process. Keep it simple, focused, and use common sense. Your people skills may be your strongest assets. The rich and successful work at mastering negotiating skills.
+
+The rich and successful master negotiating skills, says Michael Jordan. Michael Jordan is the former President of Viacom Radio in New York. His book is called “Rich and Free’s Guide to Wealth.”
+
+The key to successful research is in the interpreti ng. Collecting data is easy; understanding it is the hard part. Consensus leans towards safety; group thinking may distract you from taking calculated risks.
+
+Group thinking may distract from taking calculated risks. Consensus leans towards safety; group thinking may distract you from taking risks. A team might not be able to make good entrepreneurial calls if it leads to mediocre or safe conclusions.
+
+Group decisions will more often than not, come to a safe conclusion. Groupthink may distract you from  leading edge thinking. If you try to please all, you become average.
+
+Successful people share the wealth and resources. If you hold on to your money and ideas too tight, you wind up like the monkeys in the Amazon. Groupthink may distract you from leading edge thinking.
+
+Don't let greed and control stop you from masterminding with others. Masterminding and brainstorming is not a contact sport. You only need a small group or just one other person to help you.
+
+Masterminding and brainstorming is not a contact sport. It’s a mind game and only takes a few good thinkers. The aggressive “I can do it myself” personalities usually do wind up doing it by themselves.
+
+Napoleon discovered that the rich surrounded themselves with like-minded people for ideas, support, and experience. The rich were all                 brainstorming and masterminding ideas and theories. The more you challenge yourself, the better you become.
+
+Your Greatest Assets Are The People Around You And The People You Are Around. This concept is critically important in times of change where simple ideas teamed with good business practices can make millions in a very short period.
+
+People looking to achieve wealth often face frustration and overwhelm. It takes a strong will to do what ot hers fear or cannot conceive. Having a small group of like-minded thinkers to meet with will help you get started.
+
+Woody Sudbrink and Hal Gore were my mentors, and bosses. They focused on the same goals but they we re night and day different people. Working with others will give you positive thoughts and energy. Working alone is lonely!
+
+Hal was the ultimate people person. His leadership and people skills made things happen in the company. Woody did the work in the background. They masterminded the business strategy, but managed the business through personalities. It’s important to understand
+
+Masterminding is not to find people like yourself that agree with everything you believe in. Find people with the same goals and if possible, people who are smarter than you are. Their talent and brains are your gain, not your competition
+
+As a team, Bob and Jonathan were stronger than any one person. As different as they are, they complimented each other and the two of them together  created synergy.
+
+No one is an island but plenty of people think they are. It takes more than one person to create synergy and leverage. Sharing information with others that are competitive to your job or career may cause you problems.
+
+In some careers and political environments, it                 may even be dangerous to share ideas. Your ideas may bring information that others will                 steal, or even used agains t you.
+
+Great minds often do not always think alike, says author. Great thinkers are unique and will not follow rules and consensus. The secret of the rich and successful is they do not try to do it alone.
+
+Creating wealth comes from knowledge, wisdom directed with sound business principles. Masterminding environments allows bigger goals. Working with others is the ultimate form of leverage.
+
+Many fear power based on other people’s envy. Others fear it because they have never had it. Power is what you make it. Use it to create your freedom and independence.
+
+Masterminding is a very powerful concept used by the very rich and successful. Find bright people with diverse opinions and experience that share your goals. Power is essential to creating wealth.
+
+Numbers are critical to running a business, managing money, and evaluating investments. As a 64-year-old dyslexic, my ability to make sense of data or raw numbers was confusing. Once I was able to convert numbers to pictures,
+
+When you deal with lots of numbers, it may be                 overwhelming. Turning  data into pictures gives numbe rs dimension. Data by itself is a meaningless point in time and space without the understanding of relationships.
+
+Predictable patterns give the potential to gain knowledge. Data by itself is a meaningless point in time and space that has no reference or context without the understanding of relationships. Information is only as good as you can evaluate, interpret, and understand.
+
+During the 1980’s and early 1990s, IBM had as much information as any computer company in business. They missed a multi-billion dollar operating software business. Information is only as good as you can evaluate, interpret, and understand.
+
+IBM refused to let go of an old way of doing business. It took years of new leadership to get them back on track. Wisdom is experience, insight, principles and morality. What works today may not be working tomorrow.
+
+People get into trouble with what they think they know. What you know does not count if you do not do anything with it. Knowledge is priceless as long as you realize it is Power of Specialized Knowledge.
+
+What you know does not count if you do not do anything with it. You acquire information, organize it, and turn that information into making so mething happen. Knowing a trade and turning a trade into a successful business are two entirely different skills.
+
+Knowing a trade and turning a trade into a successful business are two entirely different skills. Each skill needs entirely different knowledge and experience to create success. If you do not have those skills, go get them.
+
+Many talk about the need to be knowledgeable in all areas of business as times are moving so fast. Acquire specialized knowledge                 and become good at a specific trade. If you have mastered skills that become obsolete, learn new skills.
+
+Learn how to be the best you can be at something that will create your wealth and give you freedom. In business, hand over responsib ility to grow, or you will find                 yourself out of business. Take generalized education and knowledge
+
+Doctors go to school for ye ars to learn a trade. Doctors who specialize earn far more than general practitioners do. Interns learn from experienced doctors. It is the knowledge and experience they gain that sets up their lifetime career.
+
+Owning your own business or starting aventure has little to do with formal education. The more you know, the more others will invest in you. Specialized knowledge is mo. tle if you do nothing with it.
+
+The eur’s Guide to Entrepreneurship is published by Simon & Schuster. The guide is available in English, French, German, and Spanish.
+
+Wayne Huizenga is the only person in history to have built three Fortune 1,000 companies from scratch. He started in 1962 with a single garbage truck. Wayne went on to build Blockbuster into a nationwide movie rental outlet and sold
+
+Wayne went from hauling garbage to renting videos to                 selling cars. Being an entrepreneur is limited by opportunity, there is no rulebook of ideas. The more you do, the more opportuniti es come to you.
+
+The idea is only one part of what will make a successful business. What makes McDonalds an extraordinary business is the system. A boring, safe, profitable business can give you time to do other things.
+
+This plan is designed to help you think if your idea has important elements to be a winner. The plan has six parts, one page or less for each                 thought. Refine your thoughts, keep it precise and to the                 point.
+
+The time to think how to sell your business is when you start the business. Who will buy what you have created? Will you get a premium for your efforts? Some argue you can make more money by starting a business and selling it.
+
+A good idea will stand up to the pressure of competition. To sell a business, you design a plan that will run successfully without you involved. The stronger the niche, the better the chance it will prove successful.
+
+Start thinking ab out a niche with research. Some information is not worth the screen you see it on. The more you research ideas, the more confidence you can develop.
+
+Wally “Famous” Amos started with a simple cookie recipe and an idea. He built a cookie empire with entertainment marketing. Big companies may let you get away with beating them in one unique area.
+
+Leverage is anything that extends you, your experience, your knowledge, your ideas,  or your business. Big companies may let you get away with beating them in one unique area as long as you do not hurt them materially. A small opportunity for
+
+Marketing is leverage. A message that motivates people to buy your product or service is like having a salesperson making a call for you. Brands create loyalty, insure repeat business, and may bring higher prices.
+
+No one is an island. It will be hard, if not impossible, to create success without help. Leverage makes a business virtually                 unlimited to any size or scope.
+
+A successful business gets new customers faster than it loses them. As a creator and leader of the venture, master the concept of sales and marketing.
+
+The plan from the very beginning should lead you, the owner and creator, to work ON the business. The job of the entrepreneur is to make the business or venture a success, not to be a worker in it.
+
+Entrepreneur: The job of the entrepreneur is to make the business or venture a success, not to be a worker in the business. Wayne Huizenga may have started driving a garbage truck but that was never his intention after he got the business started. Bill
+
+When you design a business plan, your goal is to own the business, not BE the business. Growing the business is not just for the                  money, it is for prote ction of thebusiness.
+
+The U.S. Government Small Business Administration web site is a great place to start. Business planning software covers financial projections, cash flow forecasting, strategy, sales, and marketing.
+
+Business planning software covers financial projections, cash flow forecasting, strategy, sales, and marketing. Planning software will save you endless hours of                 time and give you a professional edge.
+
+Getting started is not about the money, it is about making a good idea work. Business is not rocket science; it is creating good systems to make ideas profitable. If your idea is good, money will chase it.
+
+Investors and people betting  on you will want solid evidence you know what you are doing. A plan with a team of people to make it wo rk is what venture capitalists want to see and what a banker may be willing to bet on.
+
+Rugby is distinguished from football; the ball can only be passed backwards. Rough tackles mean no wimps allowed. Ball control is by brute force. The variation of skills and physical requirements means there is opportunity for individuals of every shape.
+
+If you are a leader, you get out of your own way in order to move forward. It’s a hard lesson for some to learn. Many do not want others to score. They want to be the winner and score all the points
+
+Entrepreneurs do not need warm bodies around them to get things done. They need people who think creatively and put innovation to work. The secret to leadership is understanding how others are motivated.
+
+The secret to leadership is understanding how others are motivated. This insight helps get things  done efficiently. You avoid problems when you have players around you working towards the same goals.
+
+Motivation is what drives all of us. You cannot drive other people’s motivations or change their values. The best way to motivate people is to create an environment that allows specific individuals to motivate themselves.
+
+Leadership Is Not Crowd Control. The distinction between leadership and management is trust, not envy, or control. Entrepreneurial leaders develop a style that will get them to succeed.
+
+Entrepreneurial leaders develop a style that will get them to the goal. Entrepreneurs seek opportunity. Their motivation is pride of winning, excitement of accomplishment.
+
+Entrepreneurs tend to have le ss formal arrangements of decision making and supervision process. People  with confidence deal directly and openly with problems. Entrepreneurs have vision and a sense of priority.
+
+Entrepreneurs have vision and a sense of priority. They filter out the day-to-day distractions and the “noise” of operations. Leaders are active listeners and pay attention.
+
+Entrepreneurs need to be able to influence others and sell concepts. A good sense of humor breaks the ice and                 eases situations. Inspire others with passion, good leadership and humility.
+
+Entrepreneurs are intuitively street smart and savvy,                 plan well, think strategically and as a rule, don’t make emotional decisions. They calculate and run scenarios  of what can happen, both good and bad, and
+
+Precession is doing things one-way that leads you to another. The principle repeats itself over                 and over in nature, science, and business.
+
+Apple developed the new hardw are and software to both play music and get music royalties from downloading songs. The iPod was a precessional effect; the thinking came from something Apple was already doing. Apple, again, reinvented itself.
+
+The entrepreneur uses expertise to get things done through others. They lead and inspire others to be as good as they  can be. The reward for workers who create value is not just to keep a job; it’s to create value.
+
+Entrepreneurs lead and inspire others to be as good as they can be. The reward for workers who create value is not just to keep a job; it’s to share in the wealth. Entrepreneurs approach the game as a team
+
+Successful people can lose their edge if they let success go to their head. Successful people are less connected to the immediate success of their business. They play favorites and downplay those that do not agree with them.
+
+Entrepreneurs who take advantage of people do not understand leadership principles. They rely on the idea and not on the business of running the business. The sign of real leadership is the ability to have others become part of the success, not in spite
+
+Entrepreneurial companies do not limit people because of title or position. A good id ea is a good idea and if it makes money and creates success, the founder of the idea is likely to be in on the success and have
+
+The final thought is about chasing only the money. Rewards come to leaders and entrepreneurs who use intelligence and do the right things. A good business does not happen because of ideas, it happens because people make the ideas work.
+
+Entrepreneur’s Guide: Getting Others to Follow is a guide to successful leadership. You can’t lead top notch players with a hierarchal management style. People will help you get rich and wealthy if they are in the game. Share the wealth: getting rich is
+
+Understand that you need to sell you and your ideas in order to advance your career, gain more respect, and increase your success, influence, and income. Sales generate income. Income  creates cash flow. Without profits, you have no business.
+
+The author was hitchhiking to school as he did every day when a salesman stopped to give him a ride. The salesman offered to teach him how to sell and pay him a commission on any orders he got.
+
+“It’s simple,” said the salesman. “Go to every house on the block and don’t skip any.” “Just talk slow and be nice, nothing to  it,’ he said.
+
+A 17-year-old boy tries to sell a free scrubber to a woman at her front door. The woman buys the scrubber and orders several other cleaning products. The salesman tells the boy, "If you can sell like this every Saturday, you can buy a scooter
+
+After high school, I got a service technician job fixing copy machines. Part of my job was to sell service contracts and paper supplies. For everything I sold, I was paid a commission on top of my salary. I sold so many supplies and service agreements I was promoted to full time sales
+
+By the time he was twenty-four he was a sales supervisor teaching a team how to sell copy machines. He wanted a more creative job so he took a position selling directo ry advertising in the fashion industry. At the age of thirty, he became General Manager of a radio station
+
+In order to sell to clients, I had to learn how their business operated. The more I  learned about business, the more successful and easier it was to sell advertising. The most successful businesses were those that focused on sales and marketing.
+
+Sales people and lawyers share the same stigma. It’s a negative perception and the media and Hollywood magnify it. Both the legal profession and professional sales are in the business of influence and persuasion.
+
+Selling is the ability to influence others. To get to the top of a business, be a good communicator. An aggressive or  rude salesperson can turn people off.
+
+Selling is not rocket science and it’s easy enough to learn the basics. To get to the top of a business, be a good communicator. Sales skills will make you a better entrepreneur.
+
+Marketing is the process of trying to influence others perceptions. When you market a product or service, you are setting up a pre-condition to make something happen. Marketing helps create brands and brand awareness.
+
+A brand identifies items or services and differentiates them from competitors. A brand implies a pledge of satisfaction and quality. Marketing helps create brands and brand                 awareness.
+
+Sales skills create wealth. People have to know you are in business and they need to know what you do. A banker will be hard-pressed to lend you money. It will be difficult to convince a venture capitalist to invest in your business.
+
+Sales and marketing may not be your favorite business activity. But at the very least, do not view it negatively. Use fear to become  stronger, not more worried.
+
+Success or failure in business may have less to do with the product or service and more with sales and marketing. Entrepreneurs must be able to sell themselves and their ideas in order to lead others.
+
+Entrepreneurs must be able to sell themselves and their ideas in order to lead others. Sales and marketing is the lifeline to success. Fear incapacitates unsuccessful people.
+
+Most people from success is lack of drive, education, and                 skills. The fearful are caught as often as the bold. You learn from your experience or you learn from others.
+
+The past helps your future planning but in no way predicts the future. If your attitude is optimistic and you are strong willed, the past helps you. If you have little self-confidence, bad experiences may leave you feeling hopeless.
+
+Life is not only about what happens to you, it’s about how you react to things that happen to you. Success is a process. The journey to your goals is your life. Many discover the chase of going after goals was the best thing that happened to them.
+
+You have to assess what you want and what are yourpriorities. Freedom, however, has a price. The question is: What is freedom going to cost me? Having a goal and a mission gives you a reason to get out.
+
+Having a goal and a mission gives you a reason to get out of bed in the morning. Money working for you will be the key to your long-term success. Be aggressive about planning your money.
+
+Compound interest grows at a faster rate as your savings and investments grow. Over a twenty or thirty year period, you can create millions on relatively modest wages. Be willing to save and invest to take advantage of compound interest.
+
+As an entrepreneur, you are on your own how to handle taxes and your money. You should have professional advice to maximize your income. In one good deal or business venture, you                 may be able to earn a lifetime of income.
+
+Getting rich is a lifetime process. It takes a burning desire and passion to go on a path most people avoid. Know yourself and work on overcoming limitations that hold you back. Acquire specialized knowledge to create success.
+
+Entrepreneurs can earn many times more than an employee, and there is no limit to what they can earn if they control the deals. Failure and Lack Of Specialized Education keeps things Status Quo. Entrepreneurs are the ones to make things happen and
+
+If you are at midlife and about to hit the peak earning years and see little upside, your risk is you may spend your entire life working and not reach your goals or potential. A decision to risk your current situation, if you have something of value,
+
+People are driven to pleasure and avoid pain. The pain and pleasure principle is well known. People will do about Anything to avoid pain; the fear of failure incapacitates people.
+
+The drive to avoid pain is stronger than the drive to seek pleasure. Most people react to real and perceived pain the same way. We know the difference between physical and emotional pain, yet we have trouble distinguishing the two.
+
+The young worry less about immediate problems, costs, or pain as long as the pleasure is worth the effort. The same 23 year old at age 45 will be more conservative and less willing to take chances. The risk of failu re to try is simply too much
+
+Many people get over the fear of failure when a job or career ends. The risk of failu re to try something new is                 less; they now have little to lose. The way to solve the problem is to gain confidence. You get co n
+
+A business is a separate legal entity in the eyes of the law. If you personally go bankrupt and overextend yourself, you are responsible and you may be liable for that debt for years to come. To get over fear, get educated and learn 
+
+Owning a business or entity has advantages aside from taxes and cash flow. You are in control, you make the decisions, and you have legal options and alternatives. You may go bankrupt and you personally will have no liability.
+
+Many have jumped from jobs to being entrepreneurs when their jobs were lost or cut back. The question of risk for reward is relative; it depends on your income and situation. If your income does not grow as fast as inflation, the choice to continue what you are doing
+
+Many have jumped from jobs to being entrepreneurs when their jobs were lost or cut back. You are on your own to make your fortune and you are virtually alone to make long-term plans and decisions about your retirement.
+
+Entrepreneur’s Guide: How you think is everything. You get one shot at life, no replays. The less you have to  risk, the easier it is to go for it.
+
+Think Rich, Get Rich Later is a book by Ben Stein. The book is about how to get rich by thinking first and then getting rich later. Stein: Cash flow is not what you are personally worth, it's the difference between income and expenses
+
+Cash flow is one of the most important parts of financial planning. Lenders, creditors, real estate investors, and money planners use cash flow analysis. If you cannot estimate cash flow, you will have trouble estimating how to spend money.
+
+The wealthy rarely spend the principle or deplete their savings. They use money to make more money and use cash flow to buy luxuries and toys. If you cannot manage your money and create assets to support you, you will never stop
+
+Wealth is relative; it is not a specific amount. Wealth generate s cash flow and cash flow gives you independence and freedom to do as you please. The secret to being rich is as simple as understanding 6th grade math.
+
+Wealth is the resource you co ntrol that will generate more cash flow than your expenses. The rich use cash flow to invest and spend. The poor spend their                 income and use debt to buy what they cannot afford.
+
+In 1971 President Nixon took us off the Gold Standard. The value of the dollar became a free-floating currency. As inflation moves higher, money depreciates. The inherent value of paper money is zero.
+
+The value of paper currency is measured against the country printing the money. Paper currency is not backed by anything but confidence. Inflation and the decreasing value of the dollar are why you need to make mo re money tomorrow than you do today.
+
+If you don’t learn how to manage your money, you may wind up bankrupt. Government statistics, without a thorough understanding, may be as useful as reading a biased editorial. Think for yourself and trust your judgment.
+
+Inflation is a force we have little control over. You de cide what you want to do with your money however you do not decide what inflation does to your money. The way to get ahead of inflation is to plan for it.
+
+Most people have 50% of their net worth and equity tied up in home ownership. The Consumer Price Index measures housing in what the government calls the “Owners Equivalent Rent” This is an attempt to calculate how much a home should rent for
+
+In 1975, the U.S. average income was $8,630 and a single wage earner paid approximately 5.6 times the annual income for a home. In 2005, the average home in Los Angeles cost 15.56 times the average U
+
+Four-year degrees fell 5.2 percent between 2000 and 2004 adjusted for inflation. College graduate ranks are swelling and face tougher competit ion for better-paying jobs.
+
+U.S. standard of living is falling. We’re all worse off  than 25 years ago. The average share of wealth for Americans is $12.5 trillion.
+
+The average share of wealth for Americans is $12.5 trillion, $41,579 per capita compared to $18,951 per capita in 1967. Millions of homeowners have had a financial windfall of spectacular home price increases.
+
+Millions of people grew richer by borrowing money against the equity in their homes. Many were able to put tens of thousands of tax-free dollars in their pockets and wind up with a lower mortgage payment. The value of real assets literally went through the roof
+
+Financial advisors say a home is not an investment because you live in it. Anyone who has seen their $50,000 dollar tract home inflate to  over one million dollars will be thinking something else.
+
+Inflation shrinks the middle class and the value of the U.S. dollar. The rich get richer because they own assets and real estate that benefit from inflation. What one income earner was able to provide during the 1970’s and 1980s now takes two incomes.
+
+The rich get richer because they own assets and real estate that benefit from inflation. Homeowners can get money out of their home in equity and now that investment is paying you in tax-free dollars.
+
+The average household net worth in 2006 is $465,000 up 83% from 1965. If you were to take out home ownership equity, these numbers would fall by almost one half. The rich and wealthy are getti ng richer and wealthier.
+
+The government favors people in business over earned income taxpayers or wage earners. The more you earn, the  larger percentage of your income goes to taxes. Once your income hits a certain threshold, the AMT kicks in.
+
+Once your income hits a certain threshold, the AMT kicks in and you begin to lose the major deductions of lower tax brackets. A joint income can easily push wage earners into AMT territory.
+
+Real estate has some of the best long-term tax avoidance and advantages in our tax system. Real estate transactions are able to avoid taxes by trading a “Like Kind” exchange.
+
+Rule #1. Creating Wealth Is A Way Of Thinking. Do not waste your time trying to change things you have no control over. Get your financial information from wealthy people, not people who talk wealth.
+
+If you want to get rich, think like the rich and play by the rules of the rich. Get your financial information from wealthy people, not people who talk wealth but have not been able to create it for themselves. If you work for a paycheck and are a W-2
+
+Business owners, entrepreneurs, and the rich pay less tax because they create economic development and employ people. As income passes $65,000, you may find yourself double taxed with AMT or the Alternative Minimum Tax. W-2 employees have taxes taken out
+
+The rich and business people have the tax advantage of being able to depreciate and amortize property and investments. The capital gains tax is a big winner for the rich and much less tax than a W-2 earner pays. As part of
+
+As the population grows, more and more people will be chasing ever-decreasing real estate. The safest way to invest in real estate is to understand numbers and look at real estate as a long-term inflation hedge.
+
+Owning your own business is the number one asset for generating cash flow and getting rich. You should get professional help and learn as much as you can but should have a portion of your assets protected  against inflation with real property.
+
+Business is a hedge against inflation and you control the hedge. You can get rich younger and faster because the opportunity to get rich is greater. The cash liquidity in the economy is like fishing in the ocean compared to years ago.
+
+The rich have money working for them, the poor and middle class are going to work for money. Invest wisely and be a smart money manager. Learn more; get financial intelligence.
+
+It is virtually impossible to get rich on your own resources; you need the help of  others. Hustle while you are young. The earlier you start investing, the better you finish.
+
+Men and Women Out-Think Men or Women at Investing. Women possess instincts that make them as good, if not better, than men at investing. Men tend to be more assertive and aggressive but those natural instincts may not create wealth.
+
+Getting rich is a way of thinking. Your behavior and habits come from your thinking. The financially literate are the people most likely to get rich. People in business get rich  because they take the risk.
+
+The rich have money working for them, the poor work for money. Use OPM to make more money. Buy assets that will take care of you. Don’t accumulate liabilities that will eat you.
+
+The mega-rich have exorbitant wealth, more than any time in history. Of the world’s 946 billionaires, 415 are U.S. citizens. The distribution of wealth worldwide is far from equal.
+
+The average and middle class is shrinking while the rich are getting richer. Real wages are flat and have been for years. Tens of millions cannot afford the cost of health insurance. Young couples are not having kids because they need dual incomes.
+
+With inflation, it’s critical that you continue to move ahead. If you stand still, inflation will make you poorer and poorer. The long-term affect of inflation is when wages stay flat and even.
+
+Real estate has been riding the inflation wave for years. Paying off a                 mortgage creates equity and wi th rising home prices, it                 creates a piggy bank for the homeowner.
+
+Inflation grows like gra ss, it silently moves higher and higher. The average income has not kept up with inflation. U.S. workers earn higher salaries than most of the world.
+
+In the past, most countries could not compete with the U.S. because of the lead in technology and ingenuity. Today, technology and communications have become available worldwide. Most of the jobs lost are not gone; they are alive in foreign countries.
+
+Inflation, competition, and flat salaries have the American middle class under attack. The U.S. middle class is a lower class after the haircut of global competition. But the economy grows and moves ahead.
+
+The 21st century began with a generational change. Work moved to the cities and so did workers as new industries created jobs. The problem is how wealth is distributed and how can you get in on worldwide prosperity. Deal with the cards you are dealt
+
+The “New Economy’ was a term coined in the early 1990’s. Looking back, we can see changes to the new economy were just starting. The big social and economic                 events are ahead.
+
+Productivity has caused lower wages for the middle class. But it has also created immense wealth in the economy. The new wealth tools are financial literacy, independent thinking, and entrepreneurial spirit.
+
+Technology and productivity k eep mid-level and salaried workers at a competitive di sadvantage. Top executives that can successfully run a co mpany in global competition                 earn even higher wages.
+
+Entrepreneurial opportunities are at an all time high. Good jobs that pay well are in huge demand, while many average income jobs are readily available. It may be more risk to continue at a dead end job or one that may  be eliminated
+
+Unless you are one of the top executives earning a higher income, it may be time to re-think the game. The key is to become more enterprising and think like an entrepreneur.
+
+Mark McCormack signed first client Arnold Palmer in 1960. The sports marketing industry and athlete representation was about to be revolutionized. McCormack created new business opportunities for himself and others.
+
+Mark was a graduate of Yale Law School and a guest lecturer at the Harvard Business School. Mark realized lessons that he had learned were not taught in business school. He founded IMG, International Management, a worldwide sports and entertainment company
+
+Mark Ou was an entrepreneur, salesman, negotiator, and a master at marketing. His people skills led him to unique insight and negotiating skills. He understood what motivated people. He was a relentless worker. Everything was a learning experience to do better
+
+Teaching obedient behavior with fear of failing is not a good way to motivate kids. Education is a self-directed activity; you cannot pour knowledge and smarts into someone.
+
+Games, simulations, and real-life experience are the best teachers. Education is a self-directed activity; you cannot pour knowledge and smarts into someone. The real world does not look or act anything like a classroom.
+
+Obsolete high schools graduate uninspired kids who go to college with little more ambition than just to be able to get a job. They take cour ses with little real life value and study what appeals to them as long as they get a                 Rich and
+
+Seth Godin, author and marketing guru, sees companies taking advantage of the education system. People smart enough to graduate college are capable, but without financial literacy and the right skills, they may be able to do little.
+
+Hiring sheepwalkers is a way to keep salaries in line. Education and a higher degree will help you get a better job but it’s no guarantee you will be successful at the job or make good income. The combination of a formal education and �
+
+Paradigms can blind you to creative ideas and solutions. If your education has made youliterate but unable to think how you can get rich, it may be because the training and environment was job oriented and compliant.
+
+Around 1960, the Swiss invented an electronic                 watch, a quartz timepiece. It was accurate but of no use to                 anyone. The Swiss thinking was who would want such a                 simple watch? But visiting executives from Japan were in Switzerland
+
+Japanese watchmakers made excellent timepieces for a fraction of the cost of Swiss watches. The Swiss were blinded by success. A new market was created and an old market was re-positioned.
+
+Overschooled and Undereducated may be enough to leave you behind. While the young may have less experience, they have current education and knowledge. Their information is not out of date.
+
+The author was a contract entrepreneur and hired for services. He learned that politics in an entrepreneurial business would only waste time. His independent thinking and drive helped his success.
+
+My independent thinking and drive helped my success; the company gave me the tools. I realized I was not going to be happy doing anything unless I had a stake in it. I would earn no equity with average safe performance; I  had to take calculated risks.
+
+Japanese battery manufacturer brought in a consultant to assess sales. The sales team setting was like a high school classroom. Many of the sales people disagreed with company policies but were not about to get into confrontation.
+
+When it came to sharing personal goals, you could  sense the answers were made up on the spot. Goals ranged from paying off the car to long-term plans of buying a condominium. My son answered his goal was to create $6,000 a month passive
+
+An entrepreneur is proactive. The price for being free is the risk you are willing to take. Everything is a risk; nothing in life is a guarantee. You never own a job. A business or venture you control is yours.
+
+In spite of your value, any job can end. A business or venture you control is yours. The hard part of being an entrepreneur is you cannot shift the responsibility.
+
+Being poor and staying poor are two different things. If you work at a job, it will not make you rich. It’s what you do while you’re not working that will make your wealth.
+
+A job gives you immediate income and hopefully enough money extra for other things. A job will also buy you time to think how to get out of your job. Your future and riches are created by what you do at night, on weekends and days off.
+
+Work is not creating a future, it's covering expenses and keeping you in place. As a worker in a company, you are helping others create wealth but those riches are not for you. You do not own the success of your job or company.
+
+As we have more qualified workers than we have good high-paying jobs, companies continue to raise the high bar even for entry-level jobs. The riskiest thing you may be doing is acceptin a basic job.
+
+The riskiest thing you may be doing is accepting the fact that you are stuck in a job. Riches come from                 specialized knowledge and educ ation, not general literacy.
+
+Innovations are reshaping everything from health care, medicine, biotech, wireless, nanotech, computers, and robotics. We are moving into a period of turbulent times, which will likely lead to significant structural changes over the next 25 years or so.
+
+Nanotechnology is the science of super miniaturization and it will enable us to change the very essence of material and matter. It will change our clothing, food, medicine, and virtually every aspect of our lives.
+
+Change can be an opportunity or a threat. Some people complain about too much change. Some manage to get through while others grumble and watch. Your success may depend on whether you approach change as an opportunity.
+
+Turbulence Ahead: Fasten Seat Belts is a new series on CNN.com. This week, Jarrett ponders the role of the internet in the 21st century. Jarrett: What information is not available?
+
+The internet will become the new audio and video network of communication. People will decide their own source of entertainment, information, and education. Competition from India and China will challenge Europe and America for power.
+
+India and China will challenge Europe and America for power and control of consumer demands. The faster the consumer figures things out, the faster inefficient companies and businesses fall. The challenge is to understand how change will shape the future of business society
+
+As enlightened consumers get smarter and smarter,                 companies will be running to keep up with them. Every new technology tackles the old to                 the ground. You cannot hold on to the past for security and                 safety.
+
+A successful thinker is flexible. You cannot fall in love with any one idea. One of the hidden reasons that people fail is their lack of a second or third idea.
+
+It is more important to have the willingness and spirit to try a new way and dare to be different. Smart thinkers capitalize on the arrogance of others that hold on to old ideas that are not efficient or no longer work.
+
+Learn how to think si deways, upside-down, crooked                 and color the lines outside of the box. Younger people have no allegiance or connection to                 how things were done; they just look for better ways to do them.
+
+Creating wealth is not about easy, it’s about being smart. Being an entrepreneur and innovative is not a single idea. The future is to be open minded and flexible as things happen faster and faster.
+
+Entrepreneur’s Guide is a guide to getting rich by thinking creatively. The internet and communication have opened up the ability to be in business on a global basis. Being an entrepreneur is not a single idea, it's a way of
+
+Entrepreneurs seek personal gain and they organize resources necessary to take advantage of opportunities. A company will not help you retire and you will not get rich while yo u work for others.
+
+Entrepreneurs seek personal gain and they organize resources necessary to take advantage of opportunities. Most people think one source of income is what you should have at a time. That mindset is  old thinking from a different era and it is not going to get
+
+Many grew up in a generation that lived well on one income, a pension, savings, and social security. Today it takes two jobs in a household to make ends meet and for  most, two income are barely adequate.
+
+A job does not belong to you. What you do for a living is not what, or who, you are. If your job no longer exists, you move on to the next opportunity.
+
+Christopher Morley: Companies are on the prowl for opportunities. Morley says companies should make mo re with the resources they have. He says that in the past, companies promised you that if you put in years of service, you would be able to retire with a pension
+
+In today’s competitive business environment, you are a disposable part of the                 business and not an integral part of an organization. A job is a temporary convenience for both you and your employer; it fills an important need. Long-term prospects are only as
+
+A successful person always finds the time to do more. A job is a temporary convenience for both you and your employer. Do not lose track of where you are in time!
+
+The more successful a person is, the more they seem to be able to do. Low achievers complain, “I’m so busy I’re out of control. I can’t do any more!” That thinking separates the
+
+The game was similar to musical chairs. Everyone had to hustle as best they could around the chairs to the music. Running with your legs tied together and stooped over like an old person not only slows you down, you run out of energy in a hurry.
+
+If you are finished with your formal education, get the lead out, get moving, and don’t put things off. Apple, Hewlett Packard, and Thomas Edison all started in humble garages.
+
+A napkin scribbled with a great idea that you actually                 start is worth a 200-page business plan that sits in a file. Apple, Hewlett Packard started in humble                 garages. Thomas Edison liked garages too.
+
+If you have been working for 5, 10, 15, 20 years and you have not tr ied to do something to help your future but hold a job, what are the odds of you winding up on some beach in the Caribbean with tiny                 umbrellas in your cocktails
+
+Entrepreneur’s Guide: An entrepreneur is a gain seeker, not a risk taker. Hustle while you’re young. The successful are having fun creating.
+
+You only get out of it what you put into it. Hustle while you’re young. The successful are having fun creating wealth and so should you. The job may go away but not the knowledge you have gained.
+
+With careerRich and Free, you can better ensure a future that will be enjoyable and rewarding. The future of a job is continuing education. Getting rich and wealthy will not happen just because you have a good job.
+
+The better your education, talents and abilities, the better job you can land. The better you do at your job, the easier it is to transfer skills to new co mpanies and opportunities. If the people you work with feel your attitude is entitlement because
+
+Business in the 21st Century is far more competitive and fast track than the last generation. The measurement of an employee today is against not only your city and your state, but the world. See change as opportunity, not a threat.
+
+The key to success is in your thinking! If you bring innovation and creativity to your job and career, you will be adding value. Companies no longer have an advantage bec ause of fast computers and brilliant software.
+
+The Biggest Single Advantage You Have In A Career  is You Can Think. Companies Need Thinkers! Reachi's brain is average, but his confidence and creativity are exceptional.
+
+The Secret To Reaching Full Potential In A Career Is To Work And Think Like An Entrepreneur. If you cannot sell yourself and your ideas, it is not likely you will get the opportunity to manage others. With responsibility comes authority.
+
+A job may not make you rich but a good job will give you income, a sense of well being and contribution. To get rich and weal thy while you are working for  others, do more than be successful at the job.
+
+The long-term plan to wealth is to create enough assets that will take care of you and give you cash flow to live and not have to work. Be sure you meet peop le who are advising you for  your personal interest and not selling you anything.
+
+As an employee, you do not have that many options compared to a business owner or the self-employed. Read, learn, and pay for advice that will help you, not make someone else rich selling you things. Saving needs to be a relentless effort
+
+ 401k is a retirement plan that allows eligible employees of a company to save and invest for their own retirement on a tax-deferred basis. Only an employer is allowed to sponsor a 401k for their employees. Pay yourself first and save before you spend your
+
+If you are under 59 ½, you may incur penalties and have taxes withheld. Keeping your funds with your former employer reduces the hassle for you and may preserve your ability to borrow from your retirement plan.
+
+An IRA is a great way to accumulate tax-advantaged savings. With a Roth IRA, you contribute after tax dollars but it accumulates tax-free growth. Traditional IRA is tax deductible up front but you pay taxes at the rate of your income when you
+
+Saving in 401Ks and IRAs are great but why stop? Why not do more? In the old days, it might not have been necessary. Today, it is mandatory.
+
+A business sold and another one bought may fall under the Starker 1031 tax-deferred exchange rules. With real estate, you can defer taxes and build an empire while  others are paying off your mortgage. Invest in things that give you lower capital tax gains and advantages
+
+If you work at your job and you put in the same amount of effort for your own personal gains, over 30 years of work, you can easily make millions of dollars. Use the good kind of debt to create wealth-creating leverage. Use other people’
+
+In 30 years, you should have enough cash flow to live on and that may be the starting point, not the end of the game. Do as the rich do and it’s a matter of time until you join the ranks of the rich and wealthy.
+
+Brian J. Bieler has written a book called Rich and Free. The book is a guide to creating wealth in the digital age. It is written for people who want to make a difference in their lives.
+
+Brian J. Bieler has more than thirty years of business, marketing, and sales experience. He began his career selling copy paper and by the age of twenty-four was a sales supervisor in midtown Manhattan. Later he joined Sudbrink Broadcasting
+
+Brian Bieler is an author, entrepreneur, and speaker. He is the President of the Viacom   Radio Group in New York City. He has produced workshops with Excellerated Business Schools.
+
+Arizona residents please add local sales tax. U.S. Shipping and Handling add $4.00 per book and $2.00 for each additional book in same shipment. International Shipping and handling add $8.000 per book.

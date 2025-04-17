@@ -1,0 +1,34 @@
+<!-- Model & chunking config page -->
+<!DOCTYPE html>
+<html lang="en">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>Admin - BookSummarizerPro</title>
+</head>
+<body>
+    <h1>Admin Configuration</h1>
+    <form method="post">
+        <label for="model">Model:</label>
+        <select name="model">
+            <option value="bart" {% if config.model == 'bart' %}selected{% endif %}>BART</option>
+            <option value="pegasus" {% if config.model == 'pegasus' %}selected{% endif %}>PEGASUS</option>
+        </select><br>
+
+        <label for="chunk_size">Chunk Size:</label>
+        <input type="number" name="chunk_size" value="{{ config.chunk_size }}"><br>
+
+        <label for="chunk_overlap">Chunk Overlap:</label>
+        <input type="number" name="chunk_overlap" value="{{ config.chunk_overlap }}"><br>
+
+        <label for="summary_ratio">Summary Ratio:</label>
+        <input type="number" step="0.01" name="summary_ratio" value="{{ config.summary_ratio }}"><br>
+
+        <button type="submit">Update Configurations</button>
+    </form>
+    <nav>
+        <a href="/">Home</a> |
+        <a href="/logs">Logs</a>
+    </nav>
+</body>
+</html>
