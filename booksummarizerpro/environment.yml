@@ -1,4 +1,0 @@
-name: booksummarizerpro
-channels:
-  - defaults
-  - conda-forge
