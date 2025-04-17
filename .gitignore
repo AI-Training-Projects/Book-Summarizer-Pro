@@ -1,18 +1,17 @@
 __pycache__/
 *.pyc
 
-uploads/
-summaries/
+#uploads/
+summaries/*.html
+summaries/*.pdf
+summaries/*.md
 
 logs/
 
 .env
-booksummarizerpro_env.tar.gz
-*.pdf
-*.html
 tests/sample.*
-2025-04-14-SummarizerPro_ChatGPT_transcript/
+ChatGPT_transcript_2025-04-14-SummarizerPro/
 ChatGPT_transcript_exports/
-AI_Summarizer_Pro - ChatGPT Project Summary_files/
+ChatGPT_Project_Summary_files_AI_Summarizer_Pro/
 
 .vscode/

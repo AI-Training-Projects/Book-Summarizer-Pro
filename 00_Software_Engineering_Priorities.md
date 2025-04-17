@@ -1,4 +1,4 @@
-# hw
+# 00_Software_Engineering_Priorities
 
 ## 1. Modularity & Scalability
 - **Modular design** with clear separation of concerns:

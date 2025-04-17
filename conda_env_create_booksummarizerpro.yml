@@ -1,0 +1,28 @@
+# Create and activate Conda environment named "booksummarizerpro"
+# filename: conda_env_create_booksummarizerpro.yml
+#
+# Commands to build and activate environment
+# > conda env create -f conda_env_create_booksummarizerpro.yml
+# > conda activate booksummarizerpro
+# > conda env update -f conda_env_create_booksummarizerpro.yml
+#
+
+name: booksummarizerpro
+channels:
+  - conda-forge
+dependencies:
+  - python=3.10
+  - pip
+  - conda
+  - python-dotenv
+  - flask
+  - transformers
+  - pytorch
+  - torchvision
+  - jinja2
+  - beautifulsoup4
+  - markdown2
+  - reportlab
+  - pypdf2
+  - pip:
+    - accelerate

@@ -1,3 +1,7 @@
+# This is the Project_File_Structure.txt file.  It is only here for reference.
+# The project repo already has all the files in the correct folders.
+# The script "create_project_structure.py" can be used to recreate the project structure.
+
 booksummarizerpro/
 ├── app.py                    # Main Flask application
 ├── summarize.py              # Core summarization logic

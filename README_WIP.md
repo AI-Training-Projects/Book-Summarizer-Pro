@@ -81,6 +81,29 @@ Yes, documents are chunked automatically.
 
 ---
 
+## Project File Structure
+
+# The script "create_project_structure.py" can be used to recreate the project structure.
+
+booksummarizerpro/
+├── app.py                    # Main Flask application
+├── summarize.py              # Core summarization logic
+├── utils.py                  # Utilities (PDF/HTML parsing, chunking)
+├── config_manager.py         # Configuration handling
+├── templates/
+│   ├── index.html            # Frontend upload & preview interface
+│   └── admin.html            # Model & chunking config page
+├── static/
+│   └── style.css             # Styling
+├── logs/                     # Log files
+├── uploads/                  # Uploaded source documents
+├── summaries/                # Generated summaries
+├── config/
+│   └── settings.json         # Configuration persistence
+├── environment.yml           # Conda environment specification
+└── README.md                 # Detailed instructions and documentation
+
+
 ## License
 MIT License — free for personal and commercial use.
 
